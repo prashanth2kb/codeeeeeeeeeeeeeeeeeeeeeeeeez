@@ -1,2 +1,2 @@
 # codeeeeeeeeeeeeeeeeeeeeeeeeez
-copy pateeeeeeeeeeeeeeeex
+copy pasteeeeeeeeeeeeeeeex
